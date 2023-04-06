@@ -1,0 +1,1 @@
+# veri_yapilari_odev_2b
